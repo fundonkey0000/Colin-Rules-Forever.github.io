@@ -1,1 +1,1 @@
-[CLick me](http://fundonkey0000.github.io/COlin-Rules-Forever.github.io)
+[CLick me](http://fundonkey0000.github.io/Colin-Rules-Forever.github.io)
